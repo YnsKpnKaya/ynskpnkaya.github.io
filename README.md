@@ -1,0 +1,1 @@
+# ynskpnkaya.github.io
